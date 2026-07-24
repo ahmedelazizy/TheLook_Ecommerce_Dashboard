@@ -305,8 +305,7 @@ Aspiring Data Analyst
 
 ### Connect with me
 
-- LinkedIn: https://www.linkedin.com/in/YOUR-LINKEDIN
-- GitHub: https://github.com/YOUR-USERNAME
+- LinkedIn:www.linkedin.com/in/ahmed-ibrahim-b748b931b
 
 ---
 
